@@ -1,4 +1,4 @@
-#  
+#  ultimate scary shawarma kiosk Script offers the most advanced scary shawarma kiosk Script, with aimbot and speed. Perfect for dominating any match.
 
 
 
